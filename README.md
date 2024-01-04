@@ -5,5 +5,5 @@ I am a student in HSTAT
 
 I grew up in Brooklyn 
 
-I love playing games :)
+I love playing video games :)
 
